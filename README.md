@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Tas-em
+- 👀 I’m interested in Learning
+- 🌱 I’m currently learning Java
+- 📫 How to reach me Tas-em-Up@outlook.com
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: The moon moves away from you about 3.8 cm every year
